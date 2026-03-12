@@ -2,9 +2,9 @@
 - You're probably coming from pony town since that is all I use this account for.. 
 - I genuinely can't code for shit so my readme is lowkey ugly but.. HI!! 
 - C+H is welcome as long as you aren't weird about it
-- Please DNC any of my skins. Inspo is fine as long as I don't see a whole ass other me walking around!
+- Please DNC any of my skins. Inspo is fine.
 - If I don't respond, I'm probably offtab or busy! Just whisper me and I'll get back to you eventually. 
-- I am ALWAYS on the 18+ servers, if you see me don't be afraid to say hi!
+- I am ALWAYS on the 18+ servers, if you see me don't be afraid to say hi! 
 - I am a little awkward and I struggle to keep conversations going sometimes! Nothing against you <3
 - Read my strawpage since it has a LOT more information about me (i.e interests, dni) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
