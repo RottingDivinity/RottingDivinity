@@ -5,6 +5,7 @@
 - Please don't copy my skins, I spend a long time working on them.. 
 - Insperation is fine! Just not 1 to 1 copies.
 - If I don't respond, I'm probably offtab or busy! Just whisper me and I'll get back to you eventually. 
+- I am ALWAYS on the 18+ servers.. if you see me on safe servers IM DEAD AND SOMEONE HACKED ME!!! /j
 - PS I am a little awkward and I struggle sometimes! Nothing against you <3
 - Read my strawpage since it has a LOT more information about me (i.e interests, dni) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
