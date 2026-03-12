@@ -1,10 +1,12 @@
 ## Welcome!! :D
 - You're probably coming from pony town since that is all I use this account for.. 
-I genuinely can't code for shit so my readme is lowkey ugly but.. HI!! 
-C+H is welcome as long as you aren't weird about it
-Please don't copy my skins, I spend a long time working on them.. Insperation is fine! Just not 1 to 1 copies.
-if I don't respond, I'm probably offtab or busy! Just whisper me and I'll get back to you eventually. 
-Read my strawpage since it has a LOT more information about me (i.e interests, dni) 
+- I genuinely can't code for shit so my readme is lowkey ugly but.. HI!! 
+- C+H is welcome as long as you aren't weird about it
+- Please don't copy my skins, I spend a long time working on them.. 
+- Insperation is fine! Just not 1 to 1 copies.
+- If I don't respond, I'm probably offtab or busy! Just whisper me and I'll get back to you eventually. 
+- PS I am a little awkward and I struggle sometimes! Nothing against you <3
+- Read my strawpage since it has a LOT more information about me (i.e interests, dni) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢿⣿⣦⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠸⣿⣿⣿⣷⣄⠀⠀⠀⢀⢿⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
