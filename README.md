@@ -1,7 +1,6 @@
 ## Welcome!!   
 ⎛㇏( ^ˬˬ^ )ノ⎞
-- Oat, Ozaki, Onion 
-- 19, any pronouns idc!!
+- 19
 - I genuinely can't code for shit so my readme is lowkey ugly but.. HI!! 
 - C+H is welcome as long as you aren't weird about it
 - Please don't copy any of my skins. 
