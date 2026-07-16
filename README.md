@@ -1,12 +1,10 @@
 ## Welcome!!   
 »┼)➝
 - 19
-- I genuinely can't code for shit so my readme is lowkey ugly but.. HI!! 
 - I only really use this acc for ponytown lolz 
-- C+H is welcome as long as you aren't weird about it :D
-- Please don't copy any of my skins!!!!!!!
-- If I don't respond, I'm probably offtab or busy.. Try Whispering!
-- I like Minecraft (horror mods are my thing rn!) deadlock (but I don't play since my computer cannot run it), hollow knight, look outside, cry of fear, cookie run (crk, crob)..
+- If I don't respond, I'm probably offtab or busy.. Try whispering ok!!! 
+- I like Minecraft (horror mods are my thing rn...)
+- READ MY STRAWPAGE PLS :DDDD 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣠⣤⣄⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣠⣾⠟⢻⣿⣿⣆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣠⣼⢟⡃⠑⣞⠙⢻⣿⣷⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
