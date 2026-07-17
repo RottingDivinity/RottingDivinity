@@ -4,6 +4,7 @@
 - I only really use this acc for ponytown lolz 
 - If I don't respond, I'm probably offtab or busy.. Try whispering ok!!! 
 - I like Minecraft (horror mods are my thing rn...)
+- please dont roleplay with me unless I say its okay :-99 
 - READ MY STRAWPAGE PLS :DDDD 
 
 
