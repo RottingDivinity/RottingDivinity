@@ -2,6 +2,7 @@
 »┼)➝
 - 19
 - I only really use this acc for ponytown lolz 
+- pleasse dont copy my skins it makes me ssoooooooooo ssad ok?okokok :-( 
 - If I don't respond, I'm probably offtab or busy.. Try whispering ok!!! 
 - I like Minecraft (horror mods are my thing rn...)
 - please dont roleplay with me unless I say its okay :-99 
