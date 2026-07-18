@@ -1,5 +1,9 @@
 ## Welcome!!   
 »┼)➝
+
+- - **Don't add me on discord if I don't know you ok? thank you :-9** 
+
+
 - 19
 - autistic 
 - I only really use this acc for ponytown lolz 
