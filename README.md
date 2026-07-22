@@ -1,10 +1,7 @@
 <p align="center">
-## Welcome!!   
+Welcome!!
 »┼)➝
-
-- - **Don't add me on discord if I don't know you ok? thank you :-9** 
-
-
+- Don't add me on discord if I don't know you ok? thank you :-9
 - 19
 - autistic 
 - I only really use this acc for ponytown lolz 
@@ -13,8 +10,6 @@
 - I like Minecraft (horror mods are my thing rn...) 
 - please dont roleplay with me unless I say its okay :-99 
 - READ MY STRAWPAGE AND SEND ME THINGS CUZ IM AWESOME!! :-O
-
-
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣠⣤⣄⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⣠⣾⠟⢻⣿⣿⣆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣠⣼⢟⡃⠑⣞⠙⢻⣿⣷⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
